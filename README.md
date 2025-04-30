@@ -36,7 +36,7 @@ C:\Users\YOURUSERNAME\AppData\LocalLow\TVGS\Schedule I\Saves\76561198128639410\S
 ---
 
 ## 🚀 Credits
-Mod created by **[Your Name or Username Here]**.  
+Mod created by **DXXTHLY**.  
 Special thanks to the Schedule I community for being absolutely unhinged ❤️.
 
 ---
